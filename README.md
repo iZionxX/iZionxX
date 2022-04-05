@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **meanderingryan@gmail.com**
 
-- ⚡ Fun fact **I am dead**
+- ⚡ Fun fact: **I am dead**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
